@@ -1,3 +1,5 @@
 > Joel Arnó
-> 10/10/25
+> 1/10/25
 > IES Mollerussa
+
+Fi de la documentació
